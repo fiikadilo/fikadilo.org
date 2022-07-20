@@ -1,0 +1,2 @@
+# fikadilo.org
+Skill aquization
